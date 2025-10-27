@@ -1,4 +1,4 @@
 # pratica
 
 
-![download](https://github.com/user-attachments/assets/fc9a2cd7-f3ce-4b52-88a1-b57bdd84df38)
+![download](https://github.com/user-attachments/assets/12a9d8ab-8c21-4339-b40a-06896472020b)
